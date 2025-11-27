@@ -1,5 +1,5 @@
 # 💫 About Me:
-🧑‍💼Data Engineer<br>💻Progamando Pensando<br>📌Madrid<br>🔗www.linkedin.com/in/albertotriguerosholgado<br><br>
+🧑‍💼Data Engineer<br>💻Progamando 🤪 <br>📌Madrid<br>🔗www.linkedin.com/in/albertotriguerosholgado<br><br>
 
 
 ## 🌐 Socials:
